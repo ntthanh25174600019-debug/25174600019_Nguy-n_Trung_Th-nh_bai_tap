@@ -1,1 +1,1 @@
-# 25174600019_Nguyenn_Trung_Thanh_bai_tap
+# 25174600019_Nguyen_Trung_Thanh_bai_tap
